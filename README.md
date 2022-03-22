@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @Cardosoecruz and recruiter at PicPay 
+- 👋 Hi, I’m @Cardosoecruz and recrutador at PicPay 
