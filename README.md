@@ -1,0 +1,1 @@
+- 👋 Hi, I’m @Cardosoecruz and recruiter at PicPay 
